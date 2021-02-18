@@ -1,1 +1,1 @@
-![water](https://upload.wikimedia.org/wikipedia/en/thumb/1/13/Toy_Story.jpg/220px-Toy_Story.jpg)
+![water](https://cdn.discordapp.com/attachments/751074111626805279/811985016518213642/unknown.png)
